@@ -1,1 +1,1 @@
-You ca check out my profile at (https://www.instagram.com/__r.a.k.i_/)
+You ca check out my profile at [rakesh](https://www.instagram.com/__r.a.k.i_/)
